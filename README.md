@@ -16,4 +16,4 @@
 
 
 
-## Apaixonado por tecnologia, educação e por solucionar problemas das pessoas através da programação. Estudante da Digital College.
+## Apaixonado por tecnologia e por solucionar problemas das pessoas através da programação. Estudante da Digital College.
